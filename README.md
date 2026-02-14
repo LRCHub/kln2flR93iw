@@ -1,4 +1,4 @@
-# 酔シグレ – Jardin secret
+# 酔シグレ – Jardin secret（feat. Lucia、皇美緒奈）
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
